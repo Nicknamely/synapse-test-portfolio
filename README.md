@@ -30,4 +30,4 @@ utilisateur optimale.
 
 ## Solution - description
 
-duh
+duh pictures are better! 
